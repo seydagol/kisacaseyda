@@ -1,0 +1,2 @@
+# kisacaseyda
+köylü milletin efendisidir!!!
